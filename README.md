@@ -1,2 +1,0 @@
-# xiweijun
-show in things
